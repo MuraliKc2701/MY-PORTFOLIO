@@ -1,2 +1,2 @@
-#My Portfolio and Resume
+My Portfolio and Resume
 
